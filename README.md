@@ -50,6 +50,17 @@
 
 <details>
 
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/5a332851-194a-4b60-95b1-cc46b9b22ce8)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/395164ae-a1fc-4d9f-a719-0cf941cc180f)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/92d5e1a1-e6ef-4c1d-ae76-336dd1e78d28)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/3eb9dfee-0661-4dc6-bb24-fb828f405d7e)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/6b6ecfed-65af-4182-9d38-f49c376f1a48)
+
+
 </details>
 
 ---
