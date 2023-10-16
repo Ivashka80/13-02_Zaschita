@@ -32,6 +32,10 @@
 
 <details>
 
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/8bec2e24-c5bb-469e-8581-cb37fcd6fd87)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/e5ed2cd3-89d5-4076-a591-27ed6327faa4)
+
 </details>
 
 ### Задание 2
