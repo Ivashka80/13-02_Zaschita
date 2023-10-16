@@ -60,6 +60,9 @@
 
 ![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/6b6ecfed-65af-4182-9d38-f49c376f1a48)
 
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/17dcb536-8918-41da-b402-0978b1fe0742)
+
+![image](https://github.com/Ivashka80/13-02_Zaschita/assets/121082757/1be900c0-51ee-4afe-b6fe-e63fe88b5ab6)
 
 </details>
 
